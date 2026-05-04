@@ -1,2 +1,0 @@
-# skills
-For video editing
